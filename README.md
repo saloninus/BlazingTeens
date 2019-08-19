@@ -1,3 +1,2 @@
 # BlazingTeens
-无用项目(Useless Projects)
-请勿下载(Useless Projects)
+无用项目,请勿下载(No Useful Items, Do not Download)
